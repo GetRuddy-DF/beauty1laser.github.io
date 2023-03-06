@@ -1,0 +1,1 @@
+# beauty1laser.github.io
